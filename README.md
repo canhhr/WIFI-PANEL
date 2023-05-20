@@ -4,7 +4,8 @@
 ➡️ ➡️  WIFI PANEL
 
 KODU DISCORD SUNUCUMUZDA BULABİLİRSİNİZ:
-https://discord.gg/deyS7ZNzWE
+
+https://discord.gg/q5PhMyyCs3
 
 👉 Kullanım;
 
